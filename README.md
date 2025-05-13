@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ajumon2001, You can Call me Aju for Short
 - 👀 I’m interested in Robotics so learning about new things
-- 🌱 I’m currently learning Internet of Things and its truly fascinating. I knowmi am still not good enough, but willing to try more
+- 🌱 I’m currently learning Internet of Things and its truly fascinating. I know i am still not good enough, but willing to try more
 - 📫 How to reach me: Email: ajzalbhavans@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like Photography and Music
